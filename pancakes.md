@@ -6,8 +6,12 @@ Ingredients
   * 200ml milk mixed with 75 ml water
   * 50g butter
 
-To serve:
-caster sugar, lemon juice and lemon wedges
+To serve
+---------
+  * caster sugar
+  * lemon juice
+  * lemon wedges
+  * a warm plate and ready audience
 
 
 Method
