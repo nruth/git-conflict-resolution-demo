@@ -1,9 +1,10 @@
-Ingredients
- 4 oz (110 g) plain flour
- pinch of salt
- 2 large eggs
- 7 fl oz (200 ml) milk mixed with 3 fl oz (75 ml) water
- 2 oz (50 g) butter
+Ingredients:
+  4 oz (110 g) plain flour
+  pinch of salt
+  2 large eggs
+  7 fl oz (200 ml) milk mixed with 3 fl oz (75 ml) water
+  2 oz (50 g) butter
+
 To serve:
  caster sugar, lemon juice and lemon wedges
 
